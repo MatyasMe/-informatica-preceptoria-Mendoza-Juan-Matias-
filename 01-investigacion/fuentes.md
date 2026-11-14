@@ -1,4 +1,4 @@
-# Fuentes de investigación (Perplexity)
+# Fuentes de investigación (Perplexity)https://www.perplexity.ai/session/09657cdb-da09-487c-8e47-499c9bd210bd
 
 Mínimo 3 búsquedas. Una sección por búsqueda.
 
